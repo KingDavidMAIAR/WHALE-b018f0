@@ -1,14 +1,14 @@
 # WHALE-b018f0
-We would like to make WhaleCoin, a coin that is have real function in everyday life but above all to help save our oceans, cetaceans and our planet. We are officially the first MeMe token Protection of Whales and NFT System Charity. 
+
 Welcome on Board to the Elrond⚡ Whalecoin Projet🐳.
 
 $Whale🐳 is #ESDT Powered on @ElrondNetwork
 
 Info Token🏆 : https://explorer.elrond.com/tokens/WHALE-b018f0
 
-👉Telegram : t.me/ElrondWhaleCoin
+👉 Telegram : t.me/ElrondWhaleCoin
 
-👉m.facebook.com/WhaleCoin.ESDT
+👉 m.facebook.com/WhaleCoin.ESDT
 
 👉Website : https://sites.google.com/view/elrond-whalecoin/        
 
@@ -16,12 +16,10 @@ Info Token🏆 : https://explorer.elrond.com/tokens/WHALE-b018f0
 
 🤝⚡Proof of Participation ⚡🤝
 
-👇Buy $Whale🐳 with $EGLD 👇
-https://whale.so-crypto.com/ 🐳
+👇 Buy $Whale🐳 with $EGLD 👇
+  SOON with So.Crypto
 
-🙏We would like to make a part that is a real function in everyday life but in addition helps save our oceans and our planet.✅
-
-🚀Our goal is that all $EGLD  collected from the sale of🐳$Whale is directly placed with the stacking supplier and this to generate perpetual and daily income which will allow our Team to develop our future partnerships with associations and protection organizations.
+🚀 Our goal is that all $EGLD  collected from the sale of🐳$Whale is directly placed with the stacking supplier and this to generate perpetual and daily income which will allow our Team to develop our future partnerships with associations and protection organizations.
 
 ⭐The importance of whales🐳
 
